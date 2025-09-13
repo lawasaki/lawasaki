@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lawasaki
+- 👋 Hi, I’m Brian
 - 👀 I’m interested in ... Media
 - 🌱 I’m currently learning ...photography
 - 💞️ I’m looking to collaborate on ...
